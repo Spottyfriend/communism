@@ -8,9 +8,8 @@ It is *always* recommended to read, listen, or watch and discuss these recommend
 
 - [Economics](#economics)
 - [Imperialism and Borders](#imperialism-and-borders)
-- [Family](#family)
-- [Gender](#gender)
 - [Race](#race)
+- [Family and Gender](#family-and-gender)
 - [Environment](#environment)
 - [History](#history)
   
@@ -26,11 +25,9 @@ It is *always* recommended to read, listen, or watch and discuss these recommend
 
 ## Imperialism and Borders
 
-## Family
-
-## Gender
-
 ## Race
+
+## Family and Gender
 
 ## Environment
 
