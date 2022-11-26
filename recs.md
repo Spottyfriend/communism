@@ -12,7 +12,7 @@ It is *always* recommended to read, listen, or watch and discuss these recommend
 - [Family and Gender](#family-and-gender)
 - [Environment](#environment)
 - [History](#history)
-- [Society/Misc](Society/Misc)
+- [Various and Miscellaneous](various-and-miscellaneous)
   
 <!-- tocstop -->
 
@@ -34,4 +34,4 @@ It is *always* recommended to read, listen, or watch and discuss these recommend
 
 ## History
 
-## Society/Misc
+## Various and Miscellaneous
