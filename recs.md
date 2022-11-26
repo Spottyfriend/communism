@@ -1,6 +1,6 @@
 # Communist Theory
 
-Communism is a stateless, moneyless system in which human society, including political and economic functions, are organised on the basis of free association. In general, these recommendations anaylse the present system - capitalism - on the basis of a communist (or adjacent) critique and, in doing so, look to what a communist society must move past. These recommendations consist of books, articles, videos, audiobooks etc. Each has a note regarding its difficulty and length.
+Communism is a stateless, moneyless system in which human society, including political and economic functions, are organised on the basis of free cooperation. In general, these recommendations anaylse the present system - capitalism - on the basis of a communist (or adjacent) critique and, in doing so, look to what a communist society must move past. These recommendations consist of books, articles, videos, audiobooks etc. Each has a note regarding its difficulty and length.
 
 It is *always* recommended to read, listen, or watch and discuss these recommendations together with members of your community - friends, colleagues, flatmates, fellow union members etc. Much more understanding is gained via this method, and developing your own thoughts and critiques of these recommendations is made easier.
 
@@ -12,6 +12,7 @@ It is *always* recommended to read, listen, or watch and discuss these recommend
 - [Family and Gender](#family-and-gender)
 - [Environment](#environment)
 - [History](#history)
+- [Society/Misc](Society/Misc)
   
 <!-- tocstop -->
 
@@ -32,3 +33,5 @@ It is *always* recommended to read, listen, or watch and discuss these recommend
 ## Environment
 
 ## History
+
+## Society/Misc
