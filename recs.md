@@ -20,9 +20,9 @@ It is *always* recommended to read, listen, or watch and discuss these recommend
 
 [How Capitalism Exploits You - Richard Wolff (2021)](https://www.youtube.com/watch?v=2mI_RMQEulw). *Introductory.* **5 minutes.**
 
-[Planning and Anarchy - Jasper Bernes (2020)](https://cominsitu.files.wordpress.com/2020/02/bernes-planning.pdf). *Intermediate.* **≈8000 words.**
+[Planning and Anarchy - Jasper Bernes (2020)](https://cominsitu.files.wordpress.com/2020/02/bernes-planning.pdf). *Intermediate.* **≈8000 words.** On economic planning and a possible communist economy.
 
-[Value and Planning in the Age of Algorithms - Jasper Bernes (2018)](https://youtu.be/ZMzZQILjL8k). *Intermediate.* **40 minutes.**
+[Value and Planning in the Age of Algorithms - Jasper Bernes (2018)](https://youtu.be/ZMzZQILjL8k). *Intermediate.* **40 minutes.** On economic planning and a possible communist economy.
 
 ## Imperialism and Borders
 
