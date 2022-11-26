@@ -36,4 +36,5 @@ It is *always* recommended to read, listen, or watch and discuss these recommend
 ## Communism
 
 [Planning and Anarchy - Jasper Bernes (2020)](https://cominsitu.files.wordpress.com/2020/02/bernes-planning.pdf). *Intermediate.* **≈8000 words**
+
 [Value and Planning in the Age of Algorithms - Jasper Bernes (2018)](https://youtu.be/ZMzZQILjL8k). *Intermediate.* **40 minutes**
