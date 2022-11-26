@@ -6,20 +6,23 @@ It is *always* recommended to read, listen, or watch and discuss these recommend
 
 <!-- toc -->
 
-- [Capitalist Economy](#capitalist-economy)
+- [Economics](#economics)
 - [Imperialism and Borders](#imperialism-and-borders)
 - [Family](#family)
 - [Gender](#gender)
 - [Race](#race)
 - [Environment](#environment)
 - [History](#history)
-- [Communism](#communism)
   
 <!-- tocstop -->
 
-## Capitalist Economy
+## Economics
 
 [How Capitalism Exploits You - Richard Wolff (2021)](https://www.youtube.com/watch?v=2mI_RMQEulw). *Introductory.* **5 minutes.**
+
+[Planning and Anarchy - Jasper Bernes (2020)](https://cominsitu.files.wordpress.com/2020/02/bernes-planning.pdf). *Intermediate.* **≈8000 words.**
+
+[Value and Planning in the Age of Algorithms - Jasper Bernes (2018)](https://youtu.be/ZMzZQILjL8k). *Intermediate.* **40 minutes.**
 
 ## Imperialism and Borders
 
@@ -32,9 +35,3 @@ It is *always* recommended to read, listen, or watch and discuss these recommend
 ## Environment
 
 ## History
-
-## Communism
-
-[Planning and Anarchy - Jasper Bernes (2020)](https://cominsitu.files.wordpress.com/2020/02/bernes-planning.pdf). *Intermediate.* **≈8000 words**
-
-[Value and Planning in the Age of Algorithms - Jasper Bernes (2018)](https://youtu.be/ZMzZQILjL8k). *Intermediate.* **40 minutes**
