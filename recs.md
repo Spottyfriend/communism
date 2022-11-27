@@ -27,11 +27,11 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [An Introduction to the Three Volumes of Karl Marx's Capital](https://monthlyreview.org/product/an_introduction_to_the_three_volumes_of_karl_marxs_capital/) (2012). *Intermediate.* **240 pages.**
 
-[Planning and Anarchy](https://cominsitu.files.wordpress.com/2020/02/bernes-planning.pdf)(2020). *Intermediate.* **≈8000 words.** On economic planning and a possible communist economy.
+[Planning and Anarchy](https://cominsitu.files.wordpress.com/2020/02/bernes-planning.pdf) (2020). *Intermediate.* **≈8000 words.** On economic planning and a possible communist economy.
 
-[Value and Planning in the Age of Algorithms](https://youtu.be/ZMzZQILjL8k)(2018). *Intermediate.* **40 minutes.** On economic planning and a possible communist economy.
+[Value and Planning in the Age of Algorithms](https://youtu.be/ZMzZQILjL8k) (2018). *Intermediate.* **40 minutes.** On economic planning and a possible communist economy.
 
-[Capital: Volume 1](https://blackwells.co.uk/bookshop/product/Capital-Volume-1-by-Karl-Marx-Ben-Fowkes/9780140445688)(written 1867; translated 1976). *Advanced*. **815 pages (excluded prefaces and appendices).**
+[Capital: Volume 1](https://blackwells.co.uk/bookshop/product/Capital-Volume-1-by-Karl-Marx-Ben-Fowkes/9780140445688) (written 1867; translated 1976). *Advanced*. **815 pages (excluded prefaces and appendices).**
 
 ## Imperialism and Borders
 
@@ -41,18 +41,18 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## Family and Gender
 
-[Feminism, Interrupted: Disrupting Power](https://www.plutobooks.com/9780745340067/feminism-interrupted/)(2020). *Introductory*. **160 pages / 4 hours and 29 minutes.** An argument for a revolutionary feminism against a liberal, capitalistic one. Covers a broad array of topics.
+[Feminism, Interrupted: Disrupting Power](https://www.plutobooks.com/9780745340067/feminism-interrupted/) (2020). *Introductory*. **160 pages / 4 hours and 29 minutes.** An argument for a revolutionary feminism against a liberal, capitalistic one. Covers a broad array of topics.
 
-[Abolish the Family: A Manifesto for Care and Liberation](https://www.versobooks.com/books/4075-abolish-the-family)(2022). *Intermediate.* **240 pages / 3 hours, 41 minutes.**
+[Abolish the Family: A Manifesto for Care and Liberation](https://www.versobooks.com/books/4075-abolish-the-family) (2022). *Intermediate.* **240 pages / 3 hours, 41 minutes.**
 
 ## Environment
 
-[The Tragedy of the Worker: Towards the Proletarocene](https://www.versobooks.com/books/3727-the-tragedy-of-the-worker)(2021). *Intermediate.* **112 pages.** An exploration of the rise of capitalist, class society and its relation to climate change. And the relationship between climate change and a communist future.
+[The Tragedy of the Worker: Towards the Proletarocene](https://www.versobooks.com/books/3727-the-tragedy-of-the-worker) (2021). *Intermediate.* **112 pages.** An exploration of the rise of capitalist, class society and its relation to climate change. And the relationship between climate change and a communist future.
 
 ## History
 
 ## General
 
-[The Communist Manifesto](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986)(written 1848, translated 1888). *Introductory.* **56 pages / 1 hours and 38 minutes.**
+[The Communist Manifesto](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986) (written 1848, translated 1888). *Introductory.* **56 pages / 1 hours and 38 minutes.**
 
-[The Conquest of Bread](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118)(written 1892, translated 1907). *Introductory*. **221 pages / 6 hours.** A critique of feudalism and capitalism and an a proposal for a communist society.
+[The Conquest of Bread](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118) (written 1892, translated 1907). *Introductory*. **221 pages / 6 hours.** A critique of feudalism and capitalism and an a proposal for a communist society.
