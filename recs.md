@@ -10,7 +10,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 <!-- toc -->
 
-- [Economics](#economics)
+- [Economics and Work](#economics-and-work)
 - [Imperialism and Borders](#imperialism-and-borders)
 - [Prisons and Policing](#prisons-and-policing)
 - [Race](#race)
@@ -21,9 +21,11 @@ First recommendation. ***Join and become active in an organisation: a union, a t
   
 <!-- tocstop -->
 
-## Economics
+## Economics and Work
 
 [How Capitalism Exploits You](https://www.youtube.com/watch?v=2mI_RMQEulw) (2021). *Introductory.* **5 minutes.**
+
+[Riding for Deliveroo](https://www.politybooks.com/bookdetail?book_slug=riding-for-deliveroo-resistance-in-the-new-economy--9781509535507) (2019). *Introductory*. **180 pages.**
 
 [An Introduction to the Three Volumes of Karl Marx's Capital](https://monthlyreview.org/product/an_introduction_to_the_three_volumes_of_karl_marxs_capital/) (2012). *Intermediate.* **240 pages.**
 
@@ -34,6 +36,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 [Capital: Volume 1](https://blackwells.co.uk/bookshop/product/Capital-Volume-1-by-Karl-Marx-Ben-Fowkes/9780140445688) (written 1867; translated 1976). *Advanced*. **815 pages (excluded prefaces and appendices).**
 
 ## Imperialism and Borders
+
+[Border and Rule: Global Migration, Capitalism, and the Rise of Racist Nationalism](https://www.haymarketbooks.org/books/1553-border-and-rule) (2021). *Intermediate*. **336 pages / 10 hours and 19 minutes**.
 
 ## Prisons and Policing
 
@@ -46,6 +50,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 [Abolish the Family: A Manifesto for Care and Liberation](https://www.versobooks.com/books/4075-abolish-the-family) (2022). *Intermediate.* **240 pages / 3 hours, 41 minutes.**
 
 ## Environment
+
+[History of the World in Seven Cheap Things](https://www.versobooks.com/books/3139-a-history-of-the-world-in-seven-cheap-things) (2020). *Introductory*. **336 pages.**
 
 [The Tragedy of the Worker: Towards the Proletarocene](https://www.versobooks.com/books/3727-the-tragedy-of-the-worker) (2021). *Intermediate.* **112 pages.** An exploration of the rise of capitalist, class society and its relation to climate change. And the relationship between climate change and a communist future.
 
