@@ -23,7 +23,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## Economics
 
-[How Capitalism Exploits You](https://www.youtube.com/watch?v=2mI_RMQEulw)(2021). *Introductory.* **5 minutes.**
+[How Capitalism Exploits You](https://www.youtube.com/watch?v=2mI_RMQEulw) (2021). *Introductory.* **5 minutes.**
 
 [An Introduction to the Three Volumes of Karl Marx's Capital](https://monthlyreview.org/product/an_introduction_to_the_three_volumes_of_karl_marxs_capital/) (2012). *Intermediate.* **240 pages.**
 
