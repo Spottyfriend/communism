@@ -4,7 +4,9 @@ Communism is a stateless, moneyless system in which human society, including pol
 
 It is *always* recommended to read, listen, or watch and discuss these recommendations together with members of your community - friends, colleagues, flatmates, fellow union members etc. Much more understanding is gained via this method, and developing your own thoughts and critiques of these recommendations is made easier.
 
-For any recommendation you wish to read/listen to/watch but do not wish to purchase, please refer to the trusted methods of internet media piracy listed [here](https://www.reddit.com/r/FREEMEDIAHECKYEAH/wiki/index/). Otherwise, links for books direct to the publishers' website.
+For any recommendation you wish to read/listen to/watch but do not wish to purchase, please refer to the trusted methods of internet media piracy listed [here](https://www.reddit.com/r/FREEMEDIAHECKYEAH/wiki/index/). Otherwise, links for books direct to the publishers' website or reputable bookshops.
+
+First recommendation. ***Join and become active in an organisation: a union, a tenants' organisation, an anti-raids organisation, a police/prison abolitionist organisation, a radical mutual aid organisation, etc.***
 
 <!-- toc -->
 
@@ -15,7 +17,7 @@ For any recommendation you wish to read/listen to/watch but do not wish to purch
 - [Family and Gender](#family-and-gender)
 - [Environment](#environment)
 - [History](#history)
-- [Various](#various)
+- [General](#general)
   
 <!-- tocstop -->
 
@@ -49,8 +51,8 @@ For any recommendation you wish to read/listen to/watch but do not wish to purch
 
 ## History
 
-## Various
+## General
 
 [The Communist Manifesto (written 1848, translated 1888)](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986) *Introductory.* **56 pages / 1 hours and 38 minutes.**
 
-[The Conquest of Bread (written 1892, translated 1907)](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118) *Introductory*. **221 pages / 7 hours and 30 minutes.**
+[The Conquest of Bread (written 1892, translated 1907)](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118) *Introductory*. **221 pages / 6 hours.** A critique of feudalism and capitalism and an a proposal for a communist society.
