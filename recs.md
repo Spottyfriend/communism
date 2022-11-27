@@ -23,7 +23,7 @@ For any recommendation you wish to read/listen to/watch but do not wish to purch
 
 [How Capitalism Exploits You (2021)](https://www.youtube.com/watch?v=2mI_RMQEulw). *Introductory.* **5 minutes.**
 
-[An Introduction to the Three Volumes of Karl Marx's Capital (2012)](https://monthlyreview.org/product/an_introduction_to_the_three_volumes_of_karl_marxs_capital/). *Intermediate.* **240 pages**.
+[An Introduction to the Three Volumes of Karl Marx's Capital (2012)](https://monthlyreview.org/product/an_introduction_to_the_three_volumes_of_karl_marxs_capital/). *Intermediate.* **240 pages.**
 
 [Planning and Anarchy (2020)](https://cominsitu.files.wordpress.com/2020/02/bernes-planning.pdf). *Intermediate.* **≈8000 words.** On economic planning and a possible communist economy.
 
@@ -41,11 +41,11 @@ For any recommendation you wish to read/listen to/watch but do not wish to purch
 
 [Feminism, Interrupted: Disrupting Power (2020)](https://www.plutobooks.com/9780745340067/feminism-interrupted/). *Introductory*. **160 pages / 4 hours and 29 minutes.** An argument for a revolutionary feminism against a liberal, capitalistic one. Covers a broad array of topics.
 
-[Abolish the Family: A Manifesto for Care and Liberation (2022)](https://www.versobooks.com/books/4075-abolish-the-family). *Intermediate.* **240 pages / 3 hours, 41 minutes**.
+[Abolish the Family: A Manifesto for Care and Liberation (2022)](https://www.versobooks.com/books/4075-abolish-the-family). *Intermediate.* **240 pages / 3 hours, 41 minutes.**
 
 ## Environment
 
-[The Tragedy of the Worker: Towards the Proletarocene (2021)](https://www.versobooks.com/books/3727-the-tragedy-of-the-worker). *Intermediate.* **112 pages**
+[The Tragedy of the Worker: Towards the Proletarocene (2021)](https://www.versobooks.com/books/3727-the-tragedy-of-the-worker). *Intermediate.* **112 pages.**
 
 ## History
 
