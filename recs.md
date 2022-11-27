@@ -1,4 +1,4 @@
-# Communist Theory
+# Communist Recs
 
 Communism is a stateless, moneyless system in which human society, including political and economic functions, are organised on the basis of free cooperation. In general, these recommendations anaylse the present system - capitalism - on the basis of a communist (or adjacent) critique and, in doing so, look to what a communist society must move past. These recommendations consist of books, articles, videos, audiobooks etc. Each has a note regarding its difficulty and length: **books** note the **page lengths** of their paperpack editions; **articles** their **word counts**; and **audiobooks and videos** their **duration**. To find specific difficulties, press control+F and type, for example, 'introductory'. 
 
@@ -15,7 +15,7 @@ For any recommendation you wish to read/listen to/watch but do not wish to purch
 - [Family and Gender](#family-and-gender)
 - [Environment](#environment)
 - [History](#history)
-- [Society/Various](#society/various)
+- [Various](#various)
   
 <!-- tocstop -->
 
@@ -49,7 +49,7 @@ For any recommendation you wish to read/listen to/watch but do not wish to purch
 
 ## History
 
-## Society/Various
+## Various
 
 [The Communist Manifesto (written 1848, translated 1888)](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986) *Introductory.* **56 pages / 1 hours and 38 minutes.**
 
