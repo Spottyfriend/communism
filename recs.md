@@ -6,7 +6,7 @@ It is *always* recommended to read, listen, or watch and discuss these recommend
 
 For any recommendation you wish to read/listen to/watch but do not wish to purchase, please refer to the trusted methods of internet media piracy listed [here](https://www.reddit.com/r/FREEMEDIAHECKYEAH/wiki/index/). Otherwise, links for books direct to the publishers' website or reputable bookshops.
 
-First recommendation. ***Join and become active in an organisation: a union, a tenants' organisation, an anti-raids organisation, a police/prison abolitionist organisation, a radical mutual aid organisation, etc.***
+First recommendation. ***Join and become active in an organisation: a union, a tenants' organisation, an anti-raids organisation, a police/prison abolitionist organisation, a radical mutual aid organisation, etc.*** If there is not one in your area, ask a national organisation whether you could get some support to set up a local branch.
 
 <!-- toc -->
 
