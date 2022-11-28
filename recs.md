@@ -48,6 +48,10 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## Prisons and Policing
 
+[Are Prisons Obsolete?](https://www.sevenstories.com/books/2907-are-prisons-obsolete) (2003). *Introductory*. **126 pages / 4 hours and 56 minutes**.
+
+[Golden Gulag: Prisons, Surplus, Crisis, and Opposition in Globalizing California](https://www.ucpress.edu/book/9780520242012/golden-gulag) (2007). *Intermediate*. **412 pages / 7 hours and 57 minutes**. A case study that reveals the nature of the capitalist prison system in the USA and much of the Global North.
+
 ## Race
 
 ## Family and Gender
