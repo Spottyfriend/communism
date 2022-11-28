@@ -63,3 +63,5 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 [The Tragedy of the Worker: Towards the Proletarocene](https://www.versobooks.com/books/3727-the-tragedy-of-the-worker) (2021). *Intermediate.* **112 pages.** An exploration of the rise of capitalist, class society and its relation to climate change. And the relationship between climate change and a communist future.
 
 ## History
+
+[Late Victorian Holocausts: El Niño Famines and the Making of the Third World](https://www.versobooks.com/books/2311-late-victorian-holocausts) (2001). *Intermediate.* **480 pages / 15 hours and 41 minutes.**
