@@ -10,6 +10,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 <!-- toc -->
 
+- [General](#general)
 - [Economics and Work](#economics-and-work)
 - [Imperialism and Borders](#imperialism-and-borders)
 - [Prisons and Policing](#prisons-and-policing)
@@ -17,9 +18,15 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 - [Family and Gender](#family-and-gender)
 - [Environment](#environment)
 - [History](#history)
-- [General](#general)
   
 <!-- tocstop -->
+
+## General
+
+[The Communist Manifesto](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986) (written 1848, translated 1888). *Introductory.* **56 pages / 1 hours and 38 minutes.**
+
+[The Conquest of Bread](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118) (written 1892, translated 1907). *Introductory*. **221 pages / 6 hours.** A critique of feudalism and capitalism and an a proposal for a communist society.
+
 
 ## Economics and Work
 
@@ -56,9 +63,3 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 [The Tragedy of the Worker: Towards the Proletarocene](https://www.versobooks.com/books/3727-the-tragedy-of-the-worker) (2021). *Intermediate.* **112 pages.** An exploration of the rise of capitalist, class society and its relation to climate change. And the relationship between climate change and a communist future.
 
 ## History
-
-## General
-
-[The Communist Manifesto](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986) (written 1848, translated 1888). *Introductory.* **56 pages / 1 hours and 38 minutes.**
-
-[The Conquest of Bread](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118) (written 1892, translated 1907). *Introductory*. **221 pages / 6 hours.** A critique of feudalism and capitalism and an a proposal for a communist society.
