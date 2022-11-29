@@ -18,6 +18,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 - [Family and Gender](#family-and-gender)
 - [Environment](#environment)
 - [History](#history)
+- [Practical Organising and Strategy](practical-organising-and-strategy)
   
 <!-- tocstop -->
 
@@ -69,3 +70,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 ## History
 
 [Late Victorian Holocausts: El Niño Famines and the Making of the Third World](https://www.versobooks.com/books/2311-late-victorian-holocausts) (2001). *Intermediate.* **480 pages / 15 hours and 41 minutes.**
+
+## Practical Organising and Strategy
+
+[No Shortcuts: Organizing for Power in the New Gilded Age](https://blackwells.co.uk/bookshop/product/No-Shortcuts-by-Jane-McAlevey-author/9780190868659) (2018). *Introductory*. **280 pages**. Part labour history, part organising instruction manual.
