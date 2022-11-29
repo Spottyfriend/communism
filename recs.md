@@ -18,7 +18,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 - [Family and Gender](#family-and-gender)
 - [Environment](#environment)
 - [History](#history)
-- [Practical Organising and Strategy](practical-organising-and-strategy)
+- [Practical Organising and Strategy](#practical-organising-and-strategy)
   
 <!-- tocstop -->
 
