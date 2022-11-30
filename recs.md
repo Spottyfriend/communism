@@ -11,6 +11,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 <!-- toc -->
 
 - [General](#general)
+- [Practical Organising and Strategy](#practical-organising-and-strategy)
 - [Economics and Work](#economics-and-work)
 - [Imperialism and Borders](#imperialism-and-borders)
 - [Prisons and Policing](#prisons-and-policing)
@@ -18,7 +19,6 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 - [Family and Gender](#family-and-gender)
 - [Environment](#environment)
 - [History](#history)
-- [Practical Organising and Strategy](#practical-organising-and-strategy)
   
 <!-- tocstop -->
 
@@ -28,6 +28,11 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [The Conquest of Bread](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118) (written 1892, translated 1907). *Introductory*. **221 pages / 6 hours.** A critique of feudalism and capitalism and a proposal for a communist society.
 
+## Practical Organising and Strategy
+
+[How to do organising](https://buildingarevolutionarymovement.org/2021/02/26/how-to-do-organising/) (2021). *Introductory.* **3700 words.**
+
+[No Shortcuts: Organizing for Power in the New Gilded Age](https://blackwells.co.uk/bookshop/product/No-Shortcuts-by-Jane-McAlevey-author/9780190868659) (2018). *Introductory*. **280 pages**. Part labour history, part organising instruction manual.
 
 ## Economics and Work
 
@@ -86,9 +91,3 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 ## History
 
 [Late Victorian Holocausts: El Niño Famines and the Making of the Third World](https://www.versobooks.com/books/2311-late-victorian-holocausts) (2001). *Intermediate.* **480 pages / 15 hours and 41 minutes.**
-
-## Practical Organising and Strategy
-
-[How to do organising](https://buildingarevolutionarymovement.org/2021/02/26/how-to-do-organising/) (2021). *Introductory.* **3700 words.**
-
-[No Shortcuts: Organizing for Power in the New Gilded Age](https://blackwells.co.uk/bookshop/product/No-Shortcuts-by-Jane-McAlevey-author/9780190868659) (2018). *Introductory*. **280 pages**. Part labour history, part organising instruction manual.
