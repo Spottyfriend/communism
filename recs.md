@@ -38,6 +38,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [How Capitalism Exploits You](https://www.youtube.com/watch?v=2mI_RMQEulw) (2021). *Introductory.* **5 minutes.**
 
+[Work Won’t Love You Back: How Devotion to Our Jobs Keeps Us Exploited, Exhausted and Alone](https://www.hurstpublishers.com/book/work-wont-love-you-back/) (2021). *Introductory*. **496 pages / 12 hours and 59 minutes**. 
+
 [Riding for Deliveroo](https://www.politybooks.com/bookdetail?book_slug=riding-for-deliveroo-resistance-in-the-new-economy--9781509535507) (2019). *Introductory*. **180 pages.**
 
 [An Introduction to the Three Volumes of Karl Marx's Capital](https://monthlyreview.org/product/an_introduction_to_the_three_volumes_of_karl_marxs_capital/) (2012). *Intermediate.* **240 pages.**
