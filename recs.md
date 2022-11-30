@@ -34,6 +34,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [No Shortcuts: Organizing for Power in the New Gilded Age](https://blackwells.co.uk/bookshop/product/No-Shortcuts-by-Jane-McAlevey-author/9780190868659) (2018). *Introductory*. **280 pages**. Part labour history, part organising instruction manual.
 
+[Class Power on Zero-Hours](https://pmpress.org.uk/product/class-power-on-zero-hours/) (2021). *Intermediate*. **392 pages.** Lessons from an organising drive in warehouses and factories in the UK by a group of communists.
+
 ## Economics and Work
 
 [How Capitalism Exploits You](https://www.youtube.com/watch?v=2mI_RMQEulw) (2021). *Introductory.* **5 minutes.**
