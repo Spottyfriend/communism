@@ -94,4 +94,10 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## History
 
+[October: The Story of the Russian Revolution](https://www.versobooks.com/books/2731-october) (2017). *Introductory*. **384 pages / 11 hours and 37 minutes**.
+
+[Insurgent Empire: Anticolonial Resistance and British Dissent](https://www.versobooks.com/books/3155-insurgent-empire) (2020). *Intermediate*. **624 pages**. A history of the British empire through the lens of rebellions against it.
+
 [Late Victorian Holocausts: El Niño Famines and the Making of the Third World](https://www.versobooks.com/books/2311-late-victorian-holocausts) (2001). *Intermediate.* **480 pages / 15 hours and 41 minutes.**
+
+[The Dawn of Everything](https://blackwells.co.uk/bookshop/product/9780141991061?a_aid=prh) (2022). *Advanced*. **691 pages / 24 hours**. A history of human society up until the beginnings of 'civilisation'.
