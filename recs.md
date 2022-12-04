@@ -26,6 +26,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [The Communist Manifesto](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986) (written 1848, translated 1888). *Introductory.* **56 pages / 1 hours and 38 minutes.**
 
+[Geographies of Racial Capitalism](https://www.youtube.com/watch?v=2CS627aKrJI) (2020). *Introductory.* **16 minutes.**
+
 [The Conquest of Bread](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118) (written 1892, translated 1907). *Introductory*. **221 pages / 6 hours.** A critique of feudalism and capitalism and a proposal for a communist society.
 
 ## Practical Organising and Strategy
@@ -39,6 +41,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 ## Economics and Work
 
 [How Capitalism Exploits You](https://www.youtube.com/watch?v=2mI_RMQEulw) (2021). *Introductory.* **5 minutes.**
+
+[United Voices](https://www.theguardian.com/politics/video/2020/aug/12/united-voices-outsourced-key-workers-fighting-for-equal-rights-video) (2020). *Introductory.* **21 minutes**. A short documentary about workers organising in a hospital in London.
 
 [Work Won’t Love You Back: How Devotion to Our Jobs Keeps Us Exploited, Exhausted and Alone](https://www.hurstpublishers.com/book/work-wont-love-you-back/) (2021). *Introductory*. **496 pages / 12 hours and 59 minutes**. A deep exploration of ten areas of work commonly found in the Global North.
 
@@ -62,6 +66,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [Border and Rule: Global Migration, Capitalism, and the Rise of Racist Nationalism](https://www.haymarketbooks.org/books/1553-border-and-rule) (2021). *Intermediate*. **336 pages / 10 hours and 19 minutes**.
 
+How Europe Underdeveloped Africa
+
 ## Prisons and Policing
 
 [Are Prisons Obsolete?](https://www.sevenstories.com/books/2907-are-prisons-obsolete) (2003). *Introductory*. **126 pages / 4 hours and 56 minutes**.
@@ -75,6 +81,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 [The Wretched of the Earth](https://blackwells.co.uk/bookshop/product/The-Wretched-of-the-Earth-by-Frantz-Fanon/9780141186542) (written 1961, translated 2004). *Intermediate.* **255 pages / 12 hours 30 minutes.**
 
 [Black Skin, White Masks](https://blackwells.co.uk/bookshop/product/Black-Skin-White-Masks-by-Frantz-Fanon/9780241396667) (written 1961, translated 2008). *Intermediate.* **208 pages / 7 hours 35 minutes.**
+
+Black Marxism
 
 ## Family and Gender
 
@@ -96,8 +104,12 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [October: The Story of the Russian Revolution](https://www.versobooks.com/books/2731-october) (2017). *Introductory*. **384 pages / 11 hours and 37 minutes**.
 
+[The Murder of Fred Hampton](https://letterboxd.com/film/the-murder-of-fred-hampton/) (1971). *Introductory*. **1 hour and 30 mins**. Documents the organising of the communist Black Panther Party in Illinois and the murder of its chair person. 
+
+[Hammer and Hoe: Alabama Communists during the Great Depression](https://blackwells.co.uk/bookshop/product/Hammer-and-Hoe-Alabama-Communists-during-the-Great-Depression-by-Kelley-Robin-D-G/9781469625485) (1990). *Intermediate*. **396 pages / 13 hours and 40 minutes.**
+
 [Insurgent Empire: Anticolonial Resistance and British Dissent](https://www.versobooks.com/books/3155-insurgent-empire) (2020). *Intermediate*. **624 pages**. A history of the British empire through the lens of rebellions against it.
 
 [Late Victorian Holocausts: El Niño Famines and the Making of the Third World](https://www.versobooks.com/books/2311-late-victorian-holocausts) (2001). *Intermediate.* **480 pages / 15 hours and 41 minutes.**
 
-[The Dawn of Everything](https://blackwells.co.uk/bookshop/product/9780141991061?a_aid=prh) (2022). *Advanced*. **691 pages / 24 hours**. A history of human society up until the beginnings of 'civilisation'.
+[The Dawn of Everything](https://blackwells.co.uk/bookshop/product/9780141991061?a_aid=prh) (2022). *Intermediate*. **691 pages / 24 hours**. A history of human society up until the beginnings of 'civilisation'.
