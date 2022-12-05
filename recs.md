@@ -102,7 +102,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## Environment
 
-[History of the World in Seven Cheap Things](https://www.versobooks.com/books/3139-a-history-of-the-world-in-seven-cheap-things) (2020). *Introductory*. **336 pages.**
+[History of the World in Seven Cheap Things: A Guide to Capitalism, Nature, and the Future of the Planet](https://www.versobooks.com/books/3139-a-history-of-the-world-in-seven-cheap-things) (2020). *Introductory*. **336 pages.**
 
 [The Tragedy of the Worker: Towards the Proletarocene](https://www.versobooks.com/books/3727-the-tragedy-of-the-worker) (2021). *Intermediate.* **112 pages.** An exploration of the rise of capitalist, class society and its relation to climate change. And the relationship between climate change and a communist future.
 
