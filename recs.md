@@ -30,7 +30,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [The Conquest of Bread](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118) (written 1892, translated 1907). *Introductory*. **221 pages / 6 hours.** A critique of feudalism and capitalism and a proposal for a communist society.
 
-[Organize, Fight, Win: Black Communist Women’s Political Writing](https://www.versobooks.com/books/4071-organize-fight-win) (2022)
+[Organize, Fight, Win: Black Communist Women’s Political Writing](https://www.versobooks.com/books/4071-organize-fight-win) (2022). *Intermediate*. **336 pages**.
 
 ## Practical Organising and Strategy
 
