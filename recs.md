@@ -58,6 +58,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## Imperialism and Borders
 
+[The Nature of Capitalism](https://youtu.be/WseyrYuD8ao) (2018). *Introductory* **3 minutes**.
+
 [What comes after we abolish borders?](https://www.youtube.com/watch?v=d43dG5laFbA) (2022). *Introductory*. **54 minutes**.
 
 [Against Borders: The Case for Abolition](https://www.versobooks.com/books/3983-against-borders) (2022). *Introductory.* **192 pages.**
