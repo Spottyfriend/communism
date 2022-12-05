@@ -70,7 +70,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [Border and Rule: Global Migration, Capitalism, and the Rise of Racist Nationalism](https://www.haymarketbooks.org/books/1553-border-and-rule) (2021). *Intermediate*. **336 pages / 10 hours and 19 minutes**.
 
-How Europe Underdeveloped Africa
+[How Europe Underdeveloped Africa](https://www.versobooks.com/books/2785-how-europe-underdeveloped-africa) (1972). *Intermediate*. **416 pages / 13 hours and 21 minutes**.
 
 ## Prisons and Policing
 
@@ -86,7 +86,7 @@ How Europe Underdeveloped Africa
 
 [Black Skin, White Masks](https://blackwells.co.uk/bookshop/product/Black-Skin-White-Masks-by-Frantz-Fanon/9780241396667) (written 1961, translated 2008). *Intermediate.* **208 pages / 7 hours 35 minutes.**
 
-Black Marxism
+[Black Marxism: The Making of the Black Radical Tradition](https://blackwells.co.uk/bookshop/product/9780241514177?a_aid=prh) (1983). *Advanced*. **496 pages / 20 hours**.
 
 ## Family and Gender
 
