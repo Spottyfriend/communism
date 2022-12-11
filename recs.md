@@ -122,6 +122,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [The Murder of Fred Hampton](https://letterboxd.com/film/the-murder-of-fred-hampton/) (1971). *Introductory*. **1 hour and 30 mins**. Documents the organising of the communist Black Panther Party in Illinois and the murder of its chair person. 
 
+[The Darker Nations: A People's History of the Third World](https://blackwells.co.uk/bookshop/product/The-Darker-Nations-by-Vijay-Prashad/9781620977620) (2008). *Intermediate.* **400 pages / 12 hours and 22 minutes**.
+
 [Hammer and Hoe: Alabama Communists during the Great Depression](https://blackwells.co.uk/bookshop/product/Hammer-and-Hoe-Alabama-Communists-during-the-Great-Depression-by-Kelley-Robin-D-G/9781469625485) (1990). *Intermediate*. **396 pages / 13 hours and 40 minutes.**
 
 [Insurgent Empire: Anticolonial Resistance and British Dissent](https://www.versobooks.com/books/3155-insurgent-empire) (2020). *Intermediate*. **624 pages**. A history of the British empire through the lens of rebellions against it.
