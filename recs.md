@@ -108,7 +108,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [Abolish the Family: A Manifesto for Care and Liberation](https://www.versobooks.com/books/4075-abolish-the-family) (2022). *Intermediate.* **240 pages / 3 hours, 41 minutes.**
 
-[Caliban and the Witch Women, the Body and Primitive Accumulation](https://blackwells.co.uk/bookshop/product/Caliban-and-the-Witch-by-Silvia-Federici/9780241532539) (2004). *Advanced*. A delve into the birth of the capitalist system and the role played by gender in that violent process.
+[Caliban and the Witch Women, the Body and Primitive Accumulation](https://blackwells.co.uk/bookshop/product/Caliban-and-the-Witch-by-Silvia-Federici/9780241532539) (2004). *Advanced*. **382 pages**. A delve into the birth of the capitalist system and the role played by gender in that violent process.
 
 ## Environment
 
