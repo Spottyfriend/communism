@@ -98,6 +98,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## Family and Gender
 
+[Feminism for the 99%: A Manifesto](https://www.versobooks.com/books/2924-feminism-for-the-99) (2019). *Introductory*. **96 pages / 2 hours and 22 mins**.
+
 [Abolish the Family](https://youtu.be/5FiD2JGrM3s) (2022). *Introductory.* **1 hour 10 minutes**.
 
 [Feminism, Interrupted: Disrupting Power](https://www.plutobooks.com/9780745340067/feminism-interrupted/) (2020). *Introductory*. **160 pages / 4 hours and 29 minutes.** An argument for a revolutionary feminism against a liberal, capitalistic one. Covers a broad array of topics.
@@ -105,6 +107,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 [Women, Race and Class](https://blackwells.co.uk/bookshop/product/Women-Race-and-Class-by-Angela-Y-Davis/9780241408407) (1981). *Introductory*. **247 pages / 8 hours and 16 minutes**.
 
 [Abolish the Family: A Manifesto for Care and Liberation](https://www.versobooks.com/books/4075-abolish-the-family) (2022). *Intermediate.* **240 pages / 3 hours, 41 minutes.**
+
+[Caliban and the Witch Women, the Body and Primitive Accumulation](https://blackwells.co.uk/bookshop/product/Caliban-and-the-Witch-by-Silvia-Federici/9780241532539) (2004). *Advanced*. A delve into the birth of the capitalist system and the role played by gender in that violent process.
 
 ## Environment
 
