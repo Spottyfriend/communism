@@ -88,7 +88,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## Race
 
-INTRODUCTORY VIDEO
+INTRODUCTORY VIDEO/ARTICLE HERE
 
 [Women, Race and Class](https://blackwells.co.uk/bookshop/product/Women-Race-and-Class-by-Angela-Y-Davis/9780241408407) (1981). *Introductory*. **247 pages / 8 hours and 16 minutes**.
 
@@ -114,7 +114,7 @@ INTRODUCTORY VIDEO
 
 ## Environment
 
-INTRODUCTORY VIDEO HERE
+INTRODUCTORY VIDEO/ARTICLE HERE
 
 [History of the World in Seven Cheap Things: A Guide to Capitalism, Nature, and the Future of the Planet](https://www.versobooks.com/books/3139-a-history-of-the-world-in-seven-cheap-things) (2020). *Introductory*. **336 pages.**
 
