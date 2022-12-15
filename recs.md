@@ -24,9 +24,9 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## General
 
-[The Communist Manifesto](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986) (written 1848, translated 1888). *Introductory.* **56 pages / 1 hours and 38 minutes.**
-
 [Geographies of Racial Capitalism](https://www.youtube.com/watch?v=2CS627aKrJI) (2020). *Introductory.* **16 minutes.**
+
+[The Communist Manifesto](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986) (written 1848, translated 1888). *Introductory.* **56 pages / 1 hours and 38 minutes.**
 
 [The Dispossessed: An Ambiguous Utopia](https://blackwells.co.uk/bookshop/product/The-Dispossessed-by-Ursula-K-Le-Guin/9781473228412) (1974). *Introductory*. **318 pages / 12 hours and 27 minutes**. A fiction novel about a struggling physicist from a communist world who travels to its capitalist neighbour in hope of success.
 
@@ -88,6 +88,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## Race
 
+INTRODUCTORY VIDEO
+
 [Women, Race and Class](https://blackwells.co.uk/bookshop/product/Women-Race-and-Class-by-Angela-Y-Davis/9780241408407) (1981). *Introductory*. **247 pages / 8 hours and 16 minutes**.
 
 [The Wretched of the Earth](https://blackwells.co.uk/bookshop/product/The-Wretched-of-the-Earth-by-Frantz-Fanon/9780141186542) (written 1961, translated 2004). *Intermediate.* **255 pages / 12 hours 30 minutes.**
@@ -112,6 +114,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## Environment
 
+INTRODUCTORY VIDEO HERE
+
 [History of the World in Seven Cheap Things: A Guide to Capitalism, Nature, and the Future of the Planet](https://www.versobooks.com/books/3139-a-history-of-the-world-in-seven-cheap-things) (2020). *Introductory*. **336 pages.**
 
 [The Tragedy of the Worker: Towards the Proletarocene](https://www.versobooks.com/books/3727-the-tragedy-of-the-worker) (2021). *Intermediate.* **112 pages.** An exploration of the rise of capitalist, class society and its relation to climate change. And the relationship between climate change and a communist future.
@@ -119,6 +123,10 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 ## History
 
 [October: The Story of the Russian Revolution](https://www.versobooks.com/books/2731-october) (2017). *Introductory*. **384 pages / 11 hours and 37 minutes**.
+
+[Harlan County U.S.A.](https://letterboxd.com/film/harlan-county-usa/) (1976). *Introductory*. **1 hour and 43 minutes**. A documentary covering the coal miners’ strike against the Brookside Mine of the Eastover Mining Company in Harlan County, Kentucky in June, 1973.
+
+[Pride](https://letterboxd.com/film/harlan-county-usa/) (2014). *Introductory*. **1 hour and 42 minutes**. A heartwarming fictionalised retelling of the birth of the coalition between Welsh miners and a London-based radical queer community in 1984.
 
 [The Murder of Fred Hampton](https://letterboxd.com/film/the-murder-of-fred-hampton/) (1971). *Introductory*. **1 hour and 30 mins**. Documents the organising of the communist Black Panther Party in Illinois and the murder of its chair person. 
 
