@@ -56,6 +56,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [Riding for Deliveroo](https://www.politybooks.com/bookdetail?book_slug=riding-for-deliveroo-resistance-in-the-new-economy--9781509535507) (2019). *Introductory*. **180 pages.**
 
+[Technical Expertise and Communist Production](https://brooklynrail.org/2023/12/field-notes/Technical-Expertise-and-Communist-Production) (2022). *Introductory*. **7900 words.** An essay on the different levels of knowledge developed by workers under capitalism in their jobs, and how this might affect a speculated communist transition.
+
 [An Introduction to the Three Volumes of Karl Marx's Capital](https://monthlyreview.org/product/an_introduction_to_the_three_volumes_of_karl_marxs_capital/) (2012). *Intermediate.* **240 pages.**
 
 [Planning and Anarchy](https://cominsitu.files.wordpress.com/2020/02/bernes-planning.pdf) (2020). *Intermediate.* **≈8000 words.** On economic planning and a possible communist economy.
