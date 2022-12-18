@@ -116,7 +116,7 @@ INTRODUCTORY VIDEO/ARTICLE HERE
 
 ## Environment
 
-[Capitalism Is Destroying Us - The New Climate Report](https://youtu.be/pvRtNGW9Ajk). (2022). *Introductory*. **22 minutes**.
+INTRO VIDEO/ARTICLE HERE
 
 [History of the World in Seven Cheap Things: A Guide to Capitalism, Nature, and the Future of the Planet](https://www.versobooks.com/books/3139-a-history-of-the-world-in-seven-cheap-things) (2020). *Introductory*. **336 pages.**
 
