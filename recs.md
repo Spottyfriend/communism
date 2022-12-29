@@ -36,6 +36,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [Organize, Fight, Win: Black Communist Women’s Political Writing](https://www.versobooks.com/books/4071-organize-fight-win) (2022). *Intermediate*. **336 pages**.
 
+[Critique of the Gotha Programme](https://pmpress.org/index.php?l=product_detail&p=1241) (written 1875; translated 2022). *Intermediate*. **93 pages**. Karl Marx makes a critique of his socialist contemporaries and empahsises a number of key aspects of the communist future society. 
+
 ## Practical Organising and Strategy
 
 [How to do organising](https://buildingarevolutionarymovement.org/2021/02/26/how-to-do-organising/) (2021). *Introductory.* **3700 words.**
