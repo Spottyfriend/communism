@@ -28,9 +28,9 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [The Communist Manifesto](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986) (written 1848, translated 1888). *Introductory.* **56 pages / 1 hours and 38 minutes.**
 
-[The Dispossessed: An Ambiguous Utopia](https://blackwells.co.uk/bookshop/product/The-Dispossessed-by-Ursula-K-Le-Guin/9781473228412) (1974). *Introductory*. **318 pages / 12 hours and 27 minutes**. A fiction novel about a struggling physicist from a communist world who travels to its capitalist neighbour in hope of success.
+[The Dispossessed: An Ambiguous Utopia](https://blackwells.co.uk/bookshop/product/The-Dispossessed-by-Ursula-K-Le-Guin/9781473228412) (1974). *Introductory*. **318 pages / 12 hours and 27 minutes**. A fiction novel about a struggling physicist from a communist world who travels to its capitalist planetary neighbour in hope of success.
 
-[Everything for Everyone An Oral History of the New York Commune, 2052-2072](https://blackwells.co.uk/bookshop/product/Everything-for-Everyone-by-M-E-OBrien-Eman-Abdelhadi/9781942173588) (2022). *Introductory*. **256 pages.** A fictional history of a future communist world.
+[Everything for Everyone An Oral History of the New York Commune, 2052-2072](https://blackwells.co.uk/bookshop/product/Everything-for-Everyone-by-M-E-OBrien-Eman-Abdelhadi/9781942173588) (2022). *Introductory*. **256 pages.** A fictional history of a future communist society.
 
 [The Conquest of Bread](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118) (written 1892, translated 1907). *Introductory*. **221 pages / 6 hours.** A critique of feudalism and capitalism and a proposal for a communist society.
 
