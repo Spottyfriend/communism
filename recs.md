@@ -98,7 +98,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [Women, Race and Class](https://blackwells.co.uk/bookshop/product/Women-Race-and-Class-by-Angela-Y-Davis/9780241408407) (1981). *Introductory*. **247 pages / 8 hours and 16 minutes**.
 
-[Elite Capture: How The Powerful Took Over Identity Politics (& Everything Else)](https://www.plutobooks.com/9780745347851/elite-capture/) (2022). *Introductory* **176 pages / 3 hours and 17 minutes**.
+[Elite Capture: How The Powerful Took Over Identity Politics (& Everything Else)](https://www.plutobooks.com/9780745347851/elite-capture/) (2022). *Introductory*.  **176 pages / 3 hours and 17 minutes**.
 
 [The Wretched of the Earth](https://blackwells.co.uk/bookshop/product/The-Wretched-of-the-Earth-by-Frantz-Fanon/9780141186542) (written 1961, translated 2004). *Intermediate.* **255 pages / 12 hours 30 minutes.**
 
@@ -116,7 +116,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [Women, Race and Class](https://blackwells.co.uk/bookshop/product/Women-Race-and-Class-by-Angela-Y-Davis/9780241408407) (1981). *Introductory*. **247 pages / 8 hours and 16 minutes**.
 
-[Elite Capture: How The Powerful Took Over Identity Politics (& Everything Else)](https://www.plutobooks.com/9780745347851/elite-capture/) (2022). *Introductory* **176 pages / 3 hours and 17 minutes**.
+[Elite Capture: How The Powerful Took Over Identity Politics (& Everything Else)](https://www.plutobooks.com/9780745347851/elite-capture/) (2022). *Introductory*.  **176 pages / 3 hours and 17 minutes**.
 
 [Abolish the Family: A Manifesto for Care and Liberation](https://www.versobooks.com/books/4075-abolish-the-family) (2022). *Intermediate.* **240 pages / 3 hours, 41 minutes.**
 
