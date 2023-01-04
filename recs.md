@@ -130,6 +130,8 @@ INTRO VIDEO/ARTICLE HERE
 
 [The Tragedy of the Worker: Towards the Proletarocene](https://www.versobooks.com/books/3727-the-tragedy-of-the-worker) (2021). *Intermediate.* **112 pages.** An exploration of the rise of capitalist, class society and its relation to climate change. And the relationship between climate change and a communist future.
 
+[Fossil Capital: The Rise of Steam Power and the Roots of Global Warming](https://www.versobooks.com/lists/5201-theorizing-the-climate-crisis) (2016). *Intermediate*. **496 pages / 18 hours and 24 minutes**.
+
 ## History
 
 [October: The Story of the Russian Revolution](https://www.versobooks.com/books/2731-october) (2017). *Introductory*. **384 pages / 11 hours and 37 minutes**.
