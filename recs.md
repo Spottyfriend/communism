@@ -90,7 +90,11 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [Are Prisons Obsolete?](https://www.sevenstories.com/books/2907-are-prisons-obsolete) (2003). *Introductory*. **126 pages / 4 hours and 56 minutes**.
 
+[Abolition Revolution](https://www.plutobooks.com/9780745346519/abolition-revolution/) (2022). *Introductory*. **320 pages**. A historical, theoretical and practical guide to revolutionary abolitionist politics in Britain.
+
 [Golden Gulag: Prisons, Surplus, Crisis, and Opposition in Globalizing California](https://www.ucpress.edu/book/9780520242012/golden-gulag) (2007). *Intermediate*. **412 pages / 7 hours and 57 minutes**. A case study that reveals the nature of the capitalist prison system in the USA and much of the Global North.
+
+[Abolition Geography: Essays Towards Liberation](https://www.versobooks.com/books/3785-abolition-geography) (2022). *Intermediate*. **512 pages**.
 
 ## Race
 
@@ -124,13 +128,17 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## Environment
 
-INTRO VIDEO/ARTICLE HERE
+[Capitalism is destroying the planet](https://www.youtube.com/watch?v=8mk1n4Gp1ks) (2018) *Introductory*. **2 minutes**.
 
 [History of the World in Seven Cheap Things: A Guide to Capitalism, Nature, and the Future of the Planet](https://www.versobooks.com/books/3139-a-history-of-the-world-in-seven-cheap-things) (2020). *Introductory*. **336 pages.**
+
+[This Changes Everything: Capitalism vs The Climate](https://blackwells.co.uk/bookshop/product/This-Changes-Everything-by-Naomi-Klein/9780241956182) (2015). *Introductory*. **556 pages / 20 hours and 43 minutes**.
 
 [The Tragedy of the Worker: Towards the Proletarocene](https://www.versobooks.com/books/3727-the-tragedy-of-the-worker) (2021). *Intermediate.* **112 pages.** An exploration of the rise of capitalist, class society and its relation to climate change. And the relationship between climate change and a communist future.
 
 [Fossil Capital: The Rise of Steam Power and the Roots of Global Warming](https://www.versobooks.com/lists/5201-theorizing-the-climate-crisis) (2016). *Intermediate*. **496 pages / 18 hours and 24 minutes**.
+
+[Hope Against Hope: Writings on Ecological Crisis](https://blackwells.co.uk/bookshop/product/Hope-Against-Hope-by-Out-of-the-Woods/9781942173205) (2020). *Intermediate*. **272 pages**
 
 ## History
 
