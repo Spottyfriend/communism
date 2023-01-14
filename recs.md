@@ -26,13 +26,15 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [Geographies of Racial Capitalism](https://www.youtube.com/watch?v=2CS627aKrJI) (2020). *Introductory.* **16 minutes.**
 
-[The Communist Manifesto](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986) (written 1848, translated 1888). *Introductory.* **56 pages / 1 hours and 38 minutes.**
+[The Communist Manifesto](https://blackwells.co.uk/bookshop/product/The-Communist-Manifesto-by-Karl-Marx-author-Friedrich-Engels-author-Samuel-Moore-translator/9780141397986) (written 1848, translated 1888). *Introductory.* **56 pages / 1 hours and 38 minutes.** Should you find the manifesto interesting, there are a lot of modern works that contextualise and expand on it, such as [A Spectre, Haunting](https://blackwells.co.uk/bookshop/product/A-Spectre-Haunting-by-China-Miville/9781803289342) (2022).
+
+[The Conquest of Bread](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118) (written 1892, translated 1907). *Introductory*. **221 pages / 6 hours.** A critique of feudalism and capitalism and a proposal for a communist society.
+
+[Cannibal Capitalism: How Our System Is Devouring Democracy, Care, and the Planet—and What We Can Do About It](https://www.versobooks.com/books/3859-cannibal-capitalism). (2022). *Introductory*. **208 pages / 7 hours and 35 minutes**.
 
 [The Dispossessed: An Ambiguous Utopia](https://blackwells.co.uk/bookshop/product/The-Dispossessed-by-Ursula-K-Le-Guin/9781473228412) (1974). *Introductory*. **318 pages / 12 hours and 27 minutes**. A fiction novel about a struggling physicist from a communist world who travels to its capitalist planetary neighbour in hope of success.
 
 [Everything for Everyone An Oral History of the New York Commune, 2052-2072](https://blackwells.co.uk/bookshop/product/Everything-for-Everyone-by-M-E-OBrien-Eman-Abdelhadi/9781942173588) (2022). *Introductory*. **256 pages.** A fictional history of a future communist society.
-
-[The Conquest of Bread](https://blackwells.co.uk/bookshop/product/The-Conquest-of-Bread-by-Petr-Alekseevich-Kropotkin-author-David-Priestland-writer-of-added-commentary/9780141396118) (written 1892, translated 1907). *Introductory*. **221 pages / 6 hours.** A critique of feudalism and capitalism and a proposal for a communist society.
 
 [Organize, Fight, Win: Black Communist Women’s Political Writing](https://www.versobooks.com/books/4071-organize-fight-win) (2022). *Intermediate*. **336 pages**.
 
