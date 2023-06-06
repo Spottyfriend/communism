@@ -144,6 +144,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## History
 
+[The Socialist Manifesto](https://www.versobooks.com/en-gb/products/696-the-socialist-manifesto) (2019). *Introductory*. **124 pages / 5 hours and 6 minutes**. Specifically chapters two to six, which is what the page count and [runtime](https://www.youtube.com/watch?v=bTZOjFDpDOM) refer to. These chapters are a brief orthodox Anglophone account of the history of Marxist socialism.
+
 [October: The Story of the Russian Revolution](https://www.versobooks.com/books/2731-october) (2017). *Introductory*. **384 pages / 11 hours and 37 minutes**.
 
 [Harlan County U.S.A.](https://letterboxd.com/film/harlan-county-usa/) (1976). *Introductory*. **1 hour and 43 minutes**. A documentary covering the coal miners’ strike against the Brookside Mine of the Eastover Mining Company in Harlan County, Kentucky in June, 1973.
