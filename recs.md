@@ -150,6 +150,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [October: The Story of the Russian Revolution](https://www.versobooks.com/books/2731-october) (2017). *Introductory*. **384 pages / 11 hours and 37 minutes**.
 
+[A People's History of the German Revolution: 1918-19](https://www.plutobooks.com/9780745337104/a-peoples-history-of-the-german-revolution/) (2018). *Introductory*. **208 pages**.
+
 [Harlan County U.S.A.](https://letterboxd.com/film/harlan-county-usa/) (1976). *Introductory*. **1 hour and 43 minutes**. A documentary covering the coal miners’ strike against the Brookside Mine of the Eastover Mining Company in Harlan County, Kentucky in June, 1973.
 
 [Pride](https://letterboxd.com/film/harlan-county-usa/) (2014). *Introductory*. **1 hour and 42 minutes**. A heartwarming fictionalised retelling of the birth of the coalition between Welsh miners and a London-based radical queer community in 1984.
