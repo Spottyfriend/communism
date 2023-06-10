@@ -144,6 +144,8 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 ## History
 
+[Working Class History](https://twitter.com/wrkclasshistory) *Introductory*. A project to collect historical stories of working-class struggle and share them in a highly accessible way. WCH also has a [world map](https://map.workingclasshistory.com/#map=2/0/0) where the stories are viewable.
+
 [The Socialist Manifesto](https://www.versobooks.com/en-gb/products/696-the-socialist-manifesto) (2019). *Introductory*. **124 pages / 5 hours and 6 minutes**. Specifically chapters two to six, which is what the page count and [runtime](https://www.youtube.com/watch?v=bTZOjFDpDOM) refer to. These chapters are a brief orthodox Anglophone account of the history of Marxist socialism.
 
 [October: The Story of the Russian Revolution](https://www.versobooks.com/books/2731-october) (2017). *Introductory*. **384 pages / 11 hours and 37 minutes**.
