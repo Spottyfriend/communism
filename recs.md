@@ -150,7 +150,7 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [October: The Story of the Russian Revolution](https://www.versobooks.com/books/2731-october) (2017). *Introductory*. **384 pages / 11 hours and 37 minutes**.
 
-[The Spanish Civil War](https://www.youtube.com/watch?v=vBftWGlIWvU&list=PLpEC8PLEjykD0V__60pUTjNTDMvTVe1fK&index=1). (1983). *Introductory*. **Five 52-minute episodes**. A BBC documentary covering the war and revolution. An hour-long commentary on the revolution using this documentary can also be found [here](https://revolutionaryleftradio.libsyn.com/best-of-the-spanish-civil-war).
+[The Spanish Civil War](https://www.youtube.com/watch?v=vBftWGlIWvU&list=PLpEC8PLEjykD0V__60pUTjNTDMvTVe1fK&index=1) (1983). *Introductory*. **Five 52-minute episodes**. A BBC documentary covering the war and revolution. An hour-long commentary on the revolution using this documentary can also be found [here](https://revolutionaryleftradio.libsyn.com/best-of-the-spanish-civil-war).
 
 [A People's History of the German Revolution: 1918-19](https://www.plutobooks.com/9780745337104/a-peoples-history-of-the-german-revolution/) (2018). *Introductory*. **208 pages**.
 
