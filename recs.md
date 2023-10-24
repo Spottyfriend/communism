@@ -106,11 +106,11 @@ First recommendation. ***Join and become active in an organisation: a union, a t
 
 [Elite Capture: How The Powerful Took Over Identity Politics (& Everything Else)](https://www.plutobooks.com/9780745347851/elite-capture/) (2022). *Introductory*.  **176 pages / 3 hours and 17 minutes**.
 
+[Red Africa: Reclaiming Revolutionary Black Politics](https://www.versobooks.com/en-gb/products/2896-red-africa) (2023). *Introductory*. **176 pages**.
+
 [The Wretched of the Earth](https://blackwells.co.uk/bookshop/product/The-Wretched-of-the-Earth-by-Frantz-Fanon/9780141186542) (written 1961, translated 2004). *Intermediate.* **255 pages / 12 hours 30 minutes.**
 
 [Black Skin, White Masks](https://blackwells.co.uk/bookshop/product/Black-Skin-White-Masks-by-Frantz-Fanon/9780241396667) (written 1961, translated 2008). *Intermediate.* **208 pages / 7 hours 35 minutes.**
-
-[Black Marxism: The Making of the Black Radical Tradition](https://blackwells.co.uk/bookshop/product/9780241514177?a_aid=prh) (1983). *Advanced*. **496 pages / 20 hours**.
 
 ## Family and Gender
 
